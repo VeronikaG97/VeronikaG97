@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VeronikaG97
+- 👋 Hi, I’m Veronika (or Nika for short)
 - 👀 I’m interested in games, books, fantasy, horror, cultur ... and a lot of other stuff.
 - 🌱 I’m currently learning coding.
 - 💞️ I’m looking to collaborate on fun projects! Tell me your idea and I will think it over.
